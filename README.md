@@ -1,2 +1,2 @@
 # RESUME
-My resume available for publec access
+My resume available for public access
